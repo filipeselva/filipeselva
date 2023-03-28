@@ -7,4 +7,4 @@ My motto in life is Define, Measure, Analyze, Improve, and Control. Like in the 
 - 👯 I’m looking to collaborate on **any data analisys project.**
 - ⚡ Fun fact: **up, up, down, down, left, right, left, right, B, A and Start.**
 - 📫 You can reach me on [LinkedIn](https://www.linkedin.com/in/filipeselva/).
-- 🍌 I'm from Brazil, no we don't have monkeys running amock. *- Get down here Apu!*
+- 🍌 Yes, i'm from Brazil. No, we don't have monkeys running amock! *- Hey! Get down here and give back my bananas!!*
